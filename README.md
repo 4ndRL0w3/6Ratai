@@ -1,1 +1,1 @@
-# 6Ratai
+# 6Ratai.github.io
